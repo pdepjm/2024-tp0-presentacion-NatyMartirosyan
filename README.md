@@ -1,6 +1,6 @@
 # TP nº0 - Presentacion
 
-Nombre: Natali Martirosyan (si, soy armenia)
+Nombre: Natali Martirosyan (si, soy armenia) 🇦🇲🇦🇲🇦🇲
 
 Legajo: 2075441
 
