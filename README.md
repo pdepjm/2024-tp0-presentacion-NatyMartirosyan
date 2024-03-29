@@ -13,7 +13,7 @@ Soy team verano.
 Me gusta el chocolate.   
 Vivo a media cuadra de UTN Medrano.   
 Mi lema: hago de todo pero no se nada.  
-Tengo dos chiwawas (Lili y Dolly) que son todo para mi y las amo con todo mi ser.
+Tengo dos chiwawas (Lili (la rubia) y Dolly) que son todo para mi y las amo con todo mi ser.
 
 
 Ellas:  
